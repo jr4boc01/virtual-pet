@@ -1,0 +1,24 @@
+# This is a description of the Virtual Pet project
+#
+#
+#
+#
+#
+#
+#
+#
+#
+#
+#
+#
+#
+#
+#
+#
+#
+#
+#
+#
+#
+#
+#
